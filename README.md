@@ -1,0 +1,1 @@
+# jaszai-foto
